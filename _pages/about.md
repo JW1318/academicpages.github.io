@@ -17,11 +17,11 @@ I'm thrilled to introduce your incredible Sixth Grade Computer Teacher, Mr. Davi
 
 ## About Mr. Daviddhc20120601
 
-👩‍🏫 **Name:** Mr. Daviddhc20120601
+👩‍🏫 **Name:** JW
 
-🏫 **Grade:** Sixth Grade
+🏫 **Grade:** students
 
-🖥️ **Subject:** Computer Science
+🖥️ **Subject:** AI GENERATED LESSONS
 
 With a passion for all things tech and years of experience in making coding, programming, and digital creativity accessible to young minds, Mr. Daviddhc20120601 is here to make learning about computers a blast!
 
