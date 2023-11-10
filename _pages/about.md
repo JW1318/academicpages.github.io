@@ -11,8 +11,7 @@ redirect_from:
 
 Hello, young tech enthusiasts! 👋
 
-https://www.pixelstalk.net/wp-content/uploads/2016/07/Wallpapers-pexels-photo.jpg
-
+![](https://www.pixelstalk.net/wp-content/uploads/2016/07/Wallpapers-pexels-photo.jpg)
 I'm thrilled to introduce your incredible Sixth Grade Computer Teacher, Mr. Daviddhc20120601! He's not just any teacher; he's a digital wizard who will guide you through the exciting world of computer science and technology.
 
 ## About Mr. Daviddhc20120601
