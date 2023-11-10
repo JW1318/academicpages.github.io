@@ -31,3 +31,4 @@ In Mr. Daviddhc20120601's class, you'll embark on an epic journey into the realm
 
 So, get ready to explore, learn, and code your way to success under the expert guidance of Mr. Daviddhc20120601. Your computer adventure is about to begin!
 
+https://www.pixelstalk.net/wp-content/uploads/2016/07/Wallpapers-pexels-photo.jpg
